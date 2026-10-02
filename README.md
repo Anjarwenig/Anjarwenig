@@ -42,16 +42,12 @@ Anime and cultural exchange discussions
 
 📫 How to reach me ...
 
-Email: galanjarweni@gmail.com
-
-LinkedIn: (https://www.linkedin.com/in/galuh-anjarweni-b50368262/)
+Email: wenileaarning@gmail.com
 
 GitHub: @Anjarwenig
 
 
-😄 Pronouns: ...
 
-She/Her
 
 
 
