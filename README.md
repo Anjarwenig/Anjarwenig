@@ -1,6 +1,6 @@
 👋 Hi, I’m @Anjarwenig
 
-Hello! I'm Weni, a professional with extensive experience in international executive assistance, accounting, and navigating complex regulations like business expantion and other governmental compliance. I'm fluent in English and Bahasa, Dutch (A2), and I enjoy learning languages for fun, including Japanese due to my love for anime.
+Hello! I'm Weni, a professional with extensive experience in international executive assistance, finance accounting, and navigating complex regulations like business expantion and other governmental compliance. I'm fluent in English and Bahasa, Dutch (A2), and I enjoy learning languages for fun, including Japanese due to my love for anime.
 
 
 
